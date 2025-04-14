@@ -1,4 +1,2 @@
 Hola mundo 🤖🤖🤖🤖
-
-Hola mundoO
-Hola mundo
+Hola mundo 🤖🤖🤖🤖
